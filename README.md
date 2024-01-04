@@ -25,3 +25,5 @@ det bliver altid opdaget og ikke nok med fængsel så kan du også miste alt adg
 -MSN MODS
 
 Discord: https://discord.gg/8n6sp2GdQx Tebex: https://msn-mods.tebex.io/
+
+![image](https://github.com/MSN-MODS/Boxville4-Replace_24-7/assets/101887341/6a1d7e2f-8bbf-4e8f-a9f0-f30717bd46ca)
